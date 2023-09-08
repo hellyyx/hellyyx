@@ -1,0 +1,4 @@
+-Hi, I’m the husband of hellyyx
+-I’m currently learning python ( 1 month )
+-I’m looking to learn c++
+-How to reach me @hellyyx ~ insta
